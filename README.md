@@ -1,1 +1,1 @@
-# praktyka-programowania_
+# praktyka-programowania
